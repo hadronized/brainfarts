@@ -12,3 +12,6 @@ Ces moments où notre CPU nous trahit de quelques lettres.
 - L’océan aquatique.
 - Arrête ton charme.
 - Voleur de bisous.
+- Passage sucré
+- Monster freeze
+- scie à Anglais
