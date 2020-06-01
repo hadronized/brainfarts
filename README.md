@@ -16,3 +16,4 @@ Ces moments où notre CPU nous trahit de quelques lettres.
 - Monster freeze
 - scie à Anglais
 - Faire un dossier en carton.
+- Pablo Pikachu (le peintre)
