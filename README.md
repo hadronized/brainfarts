@@ -17,3 +17,4 @@ Ces moments où notre CPU nous trahit de quelques lettres.
 - scie à Anglais
 - Faire un dossier en carton.
 - Pablo Pikachu (le peintre)
+- La marge de main d'oeuvre
