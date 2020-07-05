@@ -12,9 +12,10 @@ Ces moments où notre CPU nous trahit de quelques lettres.
 - L’océan aquatique.
 - Arrête ton charme.
 - Voleur de bisous.
-- Passage sucré
-- Monster freeze
-- scie à Anglais
+- Passage sucré.
+- Monster freeze.
+- Scie à Anglais.
 - Faire un dossier en carton.
-- Pablo Pikachu (le peintre)
-- La marge de main d'oeuvre
+- Pablo Pikachu (le peintre).
+- La marge de main d'oeuvre.
+- Tu m’épatates.
